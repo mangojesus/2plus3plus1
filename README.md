@@ -2,6 +2,8 @@
 
 ![](./2plus3plus1/231.svg)
 
+PLAYLIST IS HERE: https://open.spotify.com/playlist/0QgM12Bl43Sqo7hbe4WHjv?si=e8f080258cb344da
+
 # 2plus3plus1
 
 
