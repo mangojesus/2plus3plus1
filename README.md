@@ -61,8 +61,26 @@ Yet this partner inspires passionate devotion ("fire eyes") and an intimacy wher
 
 Where past encounters shaped destructive tendencies ("sheep to wolf"), this union strengthens resolve to overcome. The calm comfort offered finally allows stormy emotions to surface ("calm before the storm").
 
-With compassion, their partner guides acknowledgment of lingering guilt in a quiet space of acceptance ("silence of our own guilt"). Through this process, buried wounds can scar over ("sword in mouth").
+With compassion, their partner guides acknowledgment of lingering guilt in a quiet space of acceptance ("silence of our own guilt"). This also shows finding solace in sharing burdens where once there was isolation. Through this process, buried wounds can scar over. 
+
+With "the tongue was being sharpened by the lie", it seems to be referring to how past deceptions have made the subject wary and guarded in opening up. More willing to be outspoken to not accept less than desireable behavior from those around them. More willing to cut people down, and cut people out. They were conditioned to wield words as weapons ("sharpened tongue" + "sword in mouth") due to lies told. 
+
+"Tell us all the things we need to know now" implies a desire to uncover blindspots and become wholely known/accepted. Also a desire from both sides to learn about themselves and each other. Tell me of my flaws and errors as  they happen so they don't pile up.
 
 Rather than condemnation, their methods inspire ("gentle") and empower ("take our hand"). Traversing regions of the subject's past ("land I stole"), they help lay restless spirits to rest ("help us lay down").
 
 This benevolent force facilitates personal enlightenment and healing. Their embrace liberates the subject to envision life unburdened and pursue true purpose. A redemptive relationship nurturing vulnerability, trust and growth.
+
+Their new partner aims to assist in undoing the damage. By speaking authentic truths of comfort and empowerment, it soothes wounds where untruths once festered ("calm before the storm"). This restores the subject's ability to be genuinely vulnerable. "Shout it from the hell below" - surfacing repressed hurt and expressing it without shame. Looking to loose those demons.
+
+"Shake us but be gentle" - facing hard realities is made bearable through delicate compassion
+
+"Take our hand walk us through" continues the imagery of being guided from darkness into light
+
+This line captures the nuanced approach needed in facing past pains. While such revelations may stir up turbulent emotions ("shake us") , the supportive partner handles them with utmost care ("gentle").
+
+Rather than avoidance, this points to the importance of working through discomfort to find understanding and resolution. But it must be done with empathy, compassion and patience - not further trauma.
+
+That delicate balance of radical honesty and gentleness seems key to real healing reflected here. Unearthing difficult truths demands courage, yet is made bearable by unconditional positive regard.
+
+Overall it portrays laying bare the tattered pieces of one's psyche, and having them tenderly pieced back together. Old wounds see healing light and the soul finds peace, enabled by the redemptive love of this nurturing partner. Their presence allows facing life with authenticity and renewed purpose.
