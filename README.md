@@ -57,9 +57,15 @@ SWORD IN MOUTH, FIRE EYES
 -------------------------
 The subject has endured past relationships founded on "lies" that left them feeling "loveless" and "helpless." Entering a new bond, they cautiously assess their feelings ("weigh our thoughts") fearful of further hurt.
 
+"There is no lament in taking chances" suggests the subject embraces risk and uncertainty as part of the journey toward self-discovery. Rather than dwell on perceived failures, focus remains on future growth. Emerging from trauma, it hints at how challenging oneself, even if resulting in "falls", leads to psychological elevation. Temporary setbacks ("falling") precede higher states of empowerment ("soaring").
+
 Yet this partner inspires passionate devotion ("fire eyes") and an intimacy where the subject finds solace in surrendering control ("helplessness we love"). Their lover encourages self-understanding ("reflection") on a journey of change.
 
 Where past encounters shaped destructive tendencies ("sheep to wolf"), this union strengthens resolve to overcome. The calm comfort offered finally allows stormy emotions to surface ("calm before the storm").
+
+"Loveless without shame" seems to indicate a state of emotional deprivation and self-blame from past dysfunctional bonds. Lacking healthy intimacy and acceptance, feelings of unworthiness emerged.
+
+Yet "shame" can imply a misplaced shame - the subject's self-worth did not truly necessitate such an emotion. Their prior "loveless" condition existed for reasons beyond personal deficiency. In this context "loveless without shame" portrays damage wrought by life events rather than intrinsic flaws.
 
 With compassion, their partner guides acknowledgment of lingering guilt in a quiet space of acceptance ("silence of our own guilt"). This also shows finding solace in sharing burdens where once there was isolation. Through this process, buried wounds can scar over. 
 
