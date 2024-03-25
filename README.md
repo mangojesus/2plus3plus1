@@ -51,3 +51,18 @@ The imagery drawn by Boneface for the song features a severed hand, its digits m
 The red string could be representative of the red thread of fate, an Eastern Asian belief derived from legend, that in some myths depicts a red string tied around the pinkie or little finger that binds those who are destined to meet and/or help each other.
 
 Taking this into context of the lyrics, it’s easy to interpret that the candle-like hand is a light in the darkness guiding his loved ones to this moment in time when he recorded a message of love, the red string binding them across the (physical and metaphorical) distance that separates them.
+
+
+SWORD IN MOUTH, FIRE EYES
+-------------------------
+The subject has endured past relationships founded on "lies" that left them feeling "loveless" and "helpless." Entering a new bond, they cautiously assess their feelings ("weigh our thoughts") fearful of further hurt.
+
+Yet this partner inspires passionate devotion ("fire eyes") and an intimacy where the subject finds solace in surrendering control ("helplessness we love"). Their lover encourages self-understanding ("reflection") on a journey of change.
+
+Where past encounters shaped destructive tendencies ("sheep to wolf"), this union strengthens resolve to overcome. The calm comfort offered finally allows stormy emotions to surface ("calm before the storm").
+
+With compassion, their partner guides acknowledgment of lingering guilt in a quiet space of acceptance ("silence of our own guilt"). Through this process, buried wounds can scar over ("sword in mouth").
+
+Rather than condemnation, their methods inspire ("gentle") and empower ("take our hand"). Traversing regions of the subject's past ("land I stole"), they help lay restless spirits to rest ("help us lay down").
+
+This benevolent force facilitates personal enlightenment and healing. Their embrace liberates the subject to envision life unburdened and pursue true purpose. A redemptive relationship nurturing vulnerability, trust and growth.
